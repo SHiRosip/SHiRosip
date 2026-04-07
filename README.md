@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently looking foe a web devloper job role
+I'm currently looking for a web devloper job role
 
 
 ## 🌐 Socials:
