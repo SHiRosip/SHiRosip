@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently looking for clients for my digital marketing
+I'm currently looking foe a web devloper job role
 
 
 ## 🌐 Socials:
